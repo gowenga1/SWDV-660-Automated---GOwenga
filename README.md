@@ -1,1 +1,1 @@
-# SWDV-660-Automted---GOwenga
+# SWDV-660-Automated---GOwenga
